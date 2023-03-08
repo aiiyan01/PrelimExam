@@ -1,5 +1,7 @@
-# Christian Ian P. Deliezo
-
-## Slow/loading, air pollution, vegetables, hot weather, & traffic.
-
-### Sigorny Lagdameo
+# **Christian Ian P. Deliezo**
+===========================
+## Opaw Roll On Opaw Opaw Opaw OoooOooOooooOoOOOOOoPAAAAAAAAAAAAAAAAWWWWWWWWWWW!!!
+==================================================================================
+### *Sigorny Lagdameo*
+====================
+###### Ian Deliezo
